@@ -1,1 +1,1 @@
-https://rekhilalias.github.io/Chatbox-website/
+tinyurl.com/3kfyhv7s
